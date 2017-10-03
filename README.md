@@ -1,2 +1,0 @@
-# voiuoi.github.io
-BLOG
